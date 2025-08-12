@@ -1,1 +1,1 @@
-Ser rica
+Ser muito rica
