@@ -1,1 +1,1 @@
-Ser muito rica
+Ser muito rica, hoje
